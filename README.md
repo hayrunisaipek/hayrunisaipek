@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @hayrunisaipek
+- 👀 I’m interested in science, math, books, and softvare.
+- 🌱 I’m currently learning mechatronic and computer programing.
+- 💞️ I’m looking to collaborate on ...
+- 📫 You can reach me at "hayrunisaipk@gmail.com" email address.
